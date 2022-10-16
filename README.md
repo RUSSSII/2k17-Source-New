@@ -7,3 +7,5 @@ Romanian p1ss, I'll show your mother out of her tomb. We didn't deserve that, Bu
 My man still begging for money. Isn't 200$ enough for you?
 
 Also, He said his team scammed him never paid a penny to him. We talked with his team, He was playing 2 sides :)
+
+-*-We don't need you vane we tried you, found new developer years ago haha.
